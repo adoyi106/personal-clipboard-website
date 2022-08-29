@@ -5,4 +5,4 @@ I havent done the mobile preview due to light issues.
 I hope to do it before tomorrow morning.
 Thanks Coach
 
-**Have fun building!** 🚀
+**Having fun building!** 🚀
